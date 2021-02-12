@@ -1,4 +1,4 @@
-# Mon Laferte
+# Monserrat Laferte
 Norma Monserrat Bustamante Laferte (Viña del Mar, Chile, 2 de mayo de 1983), conocida por su nombre artístico Mon Laferte, es una cantautora, música, compositora y activista chilena. Toca diferentes instrumentos y se caracteriza por la confluencia de numerosas formas y géneros como la balada, el pop rock, el heavy metal —principalmente a raíz de su actividad como cantante entre 2012 y 2014 de las bandas Mystica Girls y Abaddon—,5​ el bolero, el vals, la cumbia, el reggae o el ska, entre otros.6​
 
 Ha sido la artista chilena con más nominaciones en una sola edición de los Grammy Latinos (cinco en 2017),7​ así como la segunda en conseguir más de estas en los mencionados premios (nueve en cuatro ocasiones).7​8​9​ Hasta mayo de 2019 ha vendido cerca de 1 500 000 copias digitales entre álbumes y sencillos, lo que la convierte en la cantante del país con mayor número de ventas de la llamada «era digital».10​ 
